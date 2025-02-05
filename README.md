@@ -1,1 +1,2 @@
-# Moffett_Physics_Sem2
+# Madison Moffett
+# Physics Semester 2
